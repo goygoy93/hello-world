@@ -1,2 +1,4 @@
 # hello-world
-for my project
+
+hi huys
+Im goygoy i like to travel and watching movies
